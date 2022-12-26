@@ -1,0 +1,3 @@
+Løbe (lø:bə)
+---
+Springa

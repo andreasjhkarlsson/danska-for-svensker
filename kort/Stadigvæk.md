@@ -1,0 +1,3 @@
+Stadigvæk (sdæ:ðivɛg)
+---
+Fortfarande

@@ -1,0 +1,3 @@
+Dyne (dy:nə)
+---
+Täcke

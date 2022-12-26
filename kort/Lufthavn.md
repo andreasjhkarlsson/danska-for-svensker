@@ -1,0 +1,3 @@
+Lufthavn (lɔfdhɑʊ̯n)
+---
+Flygplats

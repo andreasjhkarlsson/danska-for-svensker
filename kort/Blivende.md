@@ -1,0 +1,3 @@
+Blivende (bliʊ̯ənə)
+---
+Varaktig

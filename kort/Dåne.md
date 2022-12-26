@@ -1,0 +1,3 @@
+Dåne (dɔ:nə)
+---
+Svimma

@@ -1,0 +1,3 @@
+Diske (disgə)
+---
+Duka upp

@@ -1,0 +1,3 @@
+Vaske (vasgə)
+---
+Tvätta

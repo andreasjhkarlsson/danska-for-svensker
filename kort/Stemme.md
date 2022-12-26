@@ -1,0 +1,3 @@
+Stemme (sdɛmə)
+---
+Rösta

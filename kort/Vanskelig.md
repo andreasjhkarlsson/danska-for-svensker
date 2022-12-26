@@ -1,0 +1,3 @@
+Vanskelig (vansgəli)
+---
+Svår

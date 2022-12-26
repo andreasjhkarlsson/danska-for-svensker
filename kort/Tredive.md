@@ -1,0 +1,3 @@
+Tredive (tʁaðvə)
+---
+Trettio

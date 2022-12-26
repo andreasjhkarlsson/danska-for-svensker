@@ -1,0 +1,3 @@
+Hvordan (vɒdan)
+---
+Hur

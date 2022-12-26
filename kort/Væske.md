@@ -1,0 +1,3 @@
+Væske (vɛsgə)
+---
+Vätska

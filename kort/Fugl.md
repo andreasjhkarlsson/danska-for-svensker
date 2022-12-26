@@ -1,0 +1,3 @@
+Fugl (fu:l)
+---
+Fågel
