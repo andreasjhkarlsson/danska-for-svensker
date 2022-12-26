@@ -1,0 +1,3 @@
+Frisk (fʁɛsg)
+---
+Färsk

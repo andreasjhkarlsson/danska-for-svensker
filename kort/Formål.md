@@ -1,0 +1,3 @@
+Formål (fɒmɔ:l)
+---
+Syfte

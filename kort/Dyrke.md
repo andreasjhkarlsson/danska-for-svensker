@@ -1,0 +1,3 @@
+Dyrke (dyɐ̯gə)
+---
+Odla

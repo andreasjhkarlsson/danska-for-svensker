@@ -1,0 +1,3 @@
+Damp (dɑmb)
+---
+Ånga

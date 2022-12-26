@@ -1,0 +1,3 @@
+Kjole (kjo:lə)
+---
+Klänning

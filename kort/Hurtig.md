@@ -1,0 +1,3 @@
+Hurtig (huɐ̯di)
+---
+Snabb

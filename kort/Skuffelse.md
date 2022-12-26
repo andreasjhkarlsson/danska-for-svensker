@@ -1,0 +1,3 @@
+Skuffelse (sgɔfəlsə)
+---
+Göra besviken

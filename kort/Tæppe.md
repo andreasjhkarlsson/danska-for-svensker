@@ -1,0 +1,3 @@
+Tæppe (tɛbə)
+---
+Matta

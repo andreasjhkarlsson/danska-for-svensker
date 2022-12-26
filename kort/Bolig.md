@@ -1,0 +1,3 @@
+Bolig (bo:li)
+---
+Bostad

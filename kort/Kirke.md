@@ -1,0 +1,3 @@
+Kirke (kiɐ̯gə)
+---
+Kyrka

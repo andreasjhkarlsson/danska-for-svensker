@@ -1,0 +1,3 @@
+Frikadeller (fʁikadɛlɐ)
+---
+Köttbullar

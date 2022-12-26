@@ -1,0 +1,3 @@
+Mangle (mɑŋlə)
+---
+Sakna

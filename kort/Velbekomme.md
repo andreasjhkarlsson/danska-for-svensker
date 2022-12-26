@@ -1,0 +1,3 @@
+Velbekomme (vɛlbekɒmə)
+---
+Smaklig måltid

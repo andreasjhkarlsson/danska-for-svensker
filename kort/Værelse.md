@@ -1,0 +1,3 @@
+Værelse (væ:ɐlsə)
+---
+Rum

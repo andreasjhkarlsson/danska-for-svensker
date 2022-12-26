@@ -1,0 +1,3 @@
+Morgenmad (mɒ:ɐnmað)
+---
+Frukost

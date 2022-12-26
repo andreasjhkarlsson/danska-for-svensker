@@ -1,0 +1,3 @@
+Bedrift (bedʁɛfd)
+---
+Företag

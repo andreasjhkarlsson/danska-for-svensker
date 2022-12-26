@@ -1,0 +1,3 @@
+Ganske (gansgə)
+---
+Mycket

@@ -1,0 +1,3 @@
+Lukke (lɔgə)
+---
+Stänga

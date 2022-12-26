@@ -1,0 +1,3 @@
+Fælles (fɛləs)
+---
+Gemensam

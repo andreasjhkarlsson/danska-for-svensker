@@ -1,0 +1,3 @@
+Smuk (smɔg)
+---
+Vacker

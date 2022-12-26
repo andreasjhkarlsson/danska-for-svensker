@@ -1,0 +1,3 @@
+Kunstig (kɔnsdi)
+---
+Konstgjord, tillgjord

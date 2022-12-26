@@ -1,0 +1,3 @@
+Spise (sbi:sə)
+---
+Äta

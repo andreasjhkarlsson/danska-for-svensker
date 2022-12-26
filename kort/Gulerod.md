@@ -1,0 +1,3 @@
+Gulerod (guləʁoð)
+---
+Morot

@@ -1,0 +1,3 @@
+Nem (nɛm)
+---
+Lätt, Enkel

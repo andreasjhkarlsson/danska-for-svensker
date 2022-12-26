@@ -1,0 +1,3 @@
+Forskel (fɒ:sgɛl)
+---
+Skillnad

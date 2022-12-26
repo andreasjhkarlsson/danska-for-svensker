@@ -1,0 +1,3 @@
+Kasse (kasə)
+---
+Låda

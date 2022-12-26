@@ -1,0 +1,3 @@
+Sort (soɐ̯d)
+---
+Svart

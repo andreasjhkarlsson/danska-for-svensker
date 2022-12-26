@@ -1,0 +1,3 @@
+Vindue (vendu)
+---
+Fönster

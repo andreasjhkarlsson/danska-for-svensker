@@ -1,0 +1,3 @@
+Forstyrre (fɒsdyɐ̯)
+---
+Störa

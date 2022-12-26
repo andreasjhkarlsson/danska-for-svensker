@@ -1,0 +1,3 @@
+Kærlighed (kaɐ̯liheð)
+---
+Kärlek

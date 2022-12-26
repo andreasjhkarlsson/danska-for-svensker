@@ -1,0 +1,3 @@
+Firs (fiɐ̯s)
+---
+Åttio

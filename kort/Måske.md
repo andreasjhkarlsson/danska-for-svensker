@@ -1,0 +1,3 @@
+Måske (mɔsge:)
+---
+Kanske

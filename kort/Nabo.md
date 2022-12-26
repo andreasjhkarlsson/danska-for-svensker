@@ -1,0 +1,3 @@
+Nabo (næ:bo)
+---
+Granne

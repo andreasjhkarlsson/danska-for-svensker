@@ -1,0 +1,3 @@
+Halvfjerds (halfjaɐ̯s)
+---
+Sjuttio
