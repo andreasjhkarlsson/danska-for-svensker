@@ -1,0 +1,3 @@
+Kartoffel (kɑtɒfəl)
+---
+Potatis

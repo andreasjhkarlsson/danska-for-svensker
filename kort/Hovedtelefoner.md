@@ -1,0 +1,3 @@
+Hovedtelefoner (ho:əðteləfonɐ)
+---
+Hörlurar
